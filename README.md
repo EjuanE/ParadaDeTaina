@@ -1,0 +1,2 @@
+# ParadaDeTaina
+ajuda taina
